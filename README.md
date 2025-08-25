@@ -1,5 +1,8 @@
 i don't know how to do this properly. so I'll just do this.
 
+(I'm usually seen alone or cuddling with my close friends. I'm Aro/Ace and cuddle my friends with hearts sometimes. I don't have/want a partner.
+I also like stealing marshmallows and grapes ((hehehe)).)
+
 Hi. I'm Tovio. I am a HUGE fan of TF2. I've been in the fandom for 5 years now and love to talk about it... maybe a little too much. So you've been warned. I also like Dandy's world, though it's not as intense.
 
 I like short, friendly conversation. I get nervous if the silence drags on for too long. As mentioned before, I'm an adult in my 20's and am uncomfortable with spontaneous shipping and/or cuddling. I'd rather that be reserved for close friends. Please do not excessively kiss me either; even if you like my skin. I appreciate the compliment truly... it just gets a but much.
